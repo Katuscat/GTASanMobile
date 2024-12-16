@@ -6,11 +6,11 @@
 ![GTA San Mobile](https://gtasanmobile.com/wp-content/uploads/2024/10/gta-san-mobile-dowwnload.jpg)
 
 ### How to Download and Play GTA San Andreas on PC/Laptop
-Step 1 : Visit The Website: **GTASanMobile**
-Step 2 : Scroll Down and click **"Download for PC"** button
-Step 3 : Click ***"GTA San Andreas for PC"***
-Step 4 : The screen will automatically redirect to ***Rockstar Homepage*** then click ***“Buy Now”***
-Step 5 : Installing The Game and Enjoy It
+- Step 1 : Visit The Website: **GTASanMobile**.
+- Step 2 : Scroll Down and click **"Download for PC"** button.
+- Step 3 : Click ***"GTA San Andreas for PC"***.
+- Step 4 : The screen will automatically redirect to ***Rockstar Homepage*** then click ***“Buy Now”***.
+- Step 5 : Installing The Game and Enjoy It.
 
 
 ### Best Tips To Master GTA San Andreas On PC
