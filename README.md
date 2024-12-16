@@ -36,7 +36,8 @@ Here are three essential tips to dominate San Andreas:
 ### Conclusion
 You’ve just scratched the surface of Download GTA San Andreas, a game that’ll keep you hooked for hours. As you plunge deeper into Carl’s world, you’ll uncover a rich mosaic of characters, missions, and side activities. Coincidentally, the more you investigate, the more you’ll realize how interconnected everything is. From high-speed chases to empire-building, you’re in for a wild ride.
 
--> See More: **[https://gtasanmobile.com/gta-san-andreas-for-pc/](https://gtasanmobile.com/gta-san-andreas-for-pc/)**
-             **[https://gtasanmobile.com/gta-san-andreas-for-iOS/](https://gtasanmobile.com/gta-san-andreas-ios/)**
-             **[https://gtasanmobile.com/gta-san-andreas-apk/](https://gtasanmobile.com/gta-san-andreas-apk/)**
+-> See More: 
+- **[https://gtasanmobile.com/gta-san-andreas-for-pc/](https://gtasanmobile.com/gta-san-andreas-for-pc/)**
+- **[https://gtasanmobile.com/gta-san-andreas-for-iOS/](https://gtasanmobile.com/gta-san-andreas-ios/)**
+- **[https://gtasanmobile.com/gta-san-andreas-apk/](https://gtasanmobile.com/gta-san-andreas-apk/)**
 
